@@ -1,4 +1,4 @@
-What's a god to a non-beliver?
+Intelligence without ambition is like a bird without wings...
 
 <!---
 mlgdc71/mlgdc71 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
